@@ -1,0 +1,2 @@
+# SOS.ppt
+Business Idea
